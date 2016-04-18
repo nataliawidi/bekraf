@@ -2,7 +2,7 @@
 
 
 Silahkan tambahkan nama para ibu dibawah ini :
-1. Natalia W
+1. 
 
 
-2.
+2.natalia W
